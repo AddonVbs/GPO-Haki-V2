@@ -13,3 +13,11 @@ RUS>>>
 
 
 ![Busov2](https://github.com/AddonVbs/GPO-Haki-V2/assets/102360273/37a50516-584e-4880-91de-02d67064c2e2)
+
+RUS>>>
+>>и много другое вы сможите с помощью нашей программе, не толко в GPO
+
+ENG>>>
+>>and you will be able to do much more with the help of our program, not just in the GPO
+
+![Haki_V1_MAX_2SS_GIF](https://github.com/AddonVbs/GPO-Haki-V2/assets/102360273/b21984d5-802b-4d69-b499-eee0de52a836)
