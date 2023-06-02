@@ -5,6 +5,7 @@ ENG>>>
 >> which button to press, what the interval between clicks will be, and much more.....
 >> you can learn more about our mail program; mrjolygolf@gmail.com
 
+just open the file in exe
 
 >> YOU CAN BUY THE PASSWORD FROM THE PROGRAM BY WRITING TO THE MAIL; BUY PASSWORD!!....mrjolygolf@gmail.com
 >> Price: 2 USDT
@@ -15,6 +16,7 @@ RUS>>>
 >> на какую кнопку нажимать, каким будет интервал между нажатиями и многое другое.....
 >> кароче вы можете узнать больше о нашей почтовой программе; mrjolygolf@gmail.com
 
+просто откройте файл в exe 
 
 >> ВЫ МОЖЕТЕ КУПИТЬ ПАРОЛЬ ОТ ПРОГРАММЫ НАПИСАВ НА ПОЧТУ; КУПИТЬ ПАРОЛЬ!!....mrjolygolf@gmail.com
 >> цена: 2 USDT
