@@ -8,7 +8,7 @@ ENG>>>
 just open the file in exe
 
 >> YOU CAN BUY THE PASSWORD FROM THE PROGRAM BY WRITING TO THE MAIL; BUY PASSWORD!!....mrjolygolf@gmail.com
->> Price: 2 USDT
+>> Price: ... USDT
 
 RUS>>>
 >> GPO - Grand Pece Online в roblox. эта программа поможет вам в вашем Хаки! 
@@ -19,7 +19,7 @@ RUS>>>
 просто откройте файл в exe 
 
 >> ВЫ МОЖЕТЕ КУПИТЬ ПАРОЛЬ ОТ ПРОГРАММЫ НАПИСАВ НА ПОЧТУ; КУПИТЬ ПАРОЛЬ!!....mrjolygolf@gmail.com
->> цена: 2 USDT
+>> цена: ... USDT
 
 
 
